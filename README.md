@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Jannatul-Firdousi
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me-
      Mail id- officialjannatul.firdousi@gmail.com
 
